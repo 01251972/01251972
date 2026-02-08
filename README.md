@@ -15,3 +15,5 @@ Roblox : Lexiz_chan
 #### check my links for more info kay?
 
 ![giphy](https://github.com/user-attachments/assets/1d40cc21-1515-40b0-9bc2-53cfeab1e383)
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=01251972)
