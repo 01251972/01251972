@@ -7,7 +7,7 @@ $${\color{blue}∘₊✧─── \space 01251972 \space ───✧₊∘}$$
   &nbsp;&nbsp;
   <img src="https://github.com/user-attachments/assets/48b0cffd-f15b-4186-9d6e-226c36200160" height="30" alt="aroace">
   &nbsp;&nbsp;
-  <img src="https://github.com/user-attachments/assets/f2281837-919f-4241-ad66-2c0b122e962b" height="30" alt="crosspronominal">
+   <img src="https://github.com/user-attachments/assets/22eebac6-ba7b-4f50-b451-f75f2e86a328" height="20" alt="trans-man">
 </p>
 
 <p align="center">᥊ꫀli ₊ 18 y.o ₊ he/him</p>
