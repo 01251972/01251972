@@ -10,7 +10,7 @@ $${\color{blue}∘₊✧─── \space 01251972 \space ───✧₊∘}$$
    <img src="https://github.com/user-attachments/assets/22eebac6-ba7b-4f50-b451-f75f2e86a328" height="20" alt="trans-man">
 </p>
 
-<p align="center">᥊ꫀli ₊ 18 y.o ₊ he/him</p>
+<p align="center">᥊ꫀli ₊ he/him</p>
 
 <p align="center">adhd ₊ mdd ₊ gad</p>
 
